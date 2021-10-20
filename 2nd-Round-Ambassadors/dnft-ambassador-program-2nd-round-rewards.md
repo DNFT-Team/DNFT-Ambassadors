@@ -2,8 +2,6 @@
 
 ##### Activity Link:https://medium.com/dnft-protocol/dnft-ambassador-program-2nd-round-a9c998de5817
 
-##### Airdrop Link:https://github.com/DNFT-Team/AirdropList/blob/main/Airdrop%2310%20Global-Ambassadors-Plan-Round2.md
-
 ##### Address Type: Ethereum
 
 ##### Winner List
