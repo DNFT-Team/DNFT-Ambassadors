@@ -1,4 +1,4 @@
-##### Theme: DNFT Protocol Global-Ambassadors-Plan-Rewards-Round2（2021.10.20）
+##### Theme: DNFT Ambassador Program 2nd Round（2021.10.20）
 
 ##### Activity Link:https://medium.com/dnft-protocol/dnft-ambassador-program-2nd-round-a9c998de5817
 
